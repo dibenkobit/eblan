@@ -1,4 +1,4 @@
-# 🚀 EBLAN Methodology
+# 🤡 EBLAN Methodology
 **Effective Bureaucracy for Lazy And Nervous**  
 _Эффективная бюрократия для ленивых и нервных_
 
